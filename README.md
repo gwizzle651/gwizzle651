@@ -1,4 +1,4 @@
-Discord: gwizzle651
+Discord: gwizzle651;
 Email: gwizzle651@proton.me
 
 <!---
